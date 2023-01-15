@@ -1,0 +1,1 @@
+Vous pouvez mettre la récolte dans un intérieurs avec le traitement et la vente a l'extérieur c'est possible. [ Utiliser ducoup la sauvegarde avec intérieur dans le menu F6! ]
